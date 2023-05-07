@@ -24,3 +24,4 @@ In my free time, I enjoy feeding my cats, spending time with my cats and being a
 ## Contact
 
 Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/rogelio-consejo/) or maybe check my articles on [Medium](https://medium.com/@rogelio-consejo)
+You can also find me on [Upwork](https://www.upwork.com/freelancers/rogelioconsejo) if there is something I can help you with.
